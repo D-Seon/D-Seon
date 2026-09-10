@@ -1,1 +1,1 @@
-# SEONO
+# HELLO! I'm SEONO
